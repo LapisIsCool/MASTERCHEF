@@ -1,0 +1,1 @@
+Mix eggs and milk, whisk together with sugaer, vanilla, and salt. Dredge bread in batter, one slice at a time. Immediately transfer to greased skillet. Cook about 3 minutes per side over medium heat or until golden brown. (Optional) Serve warm with butter, syrup and cinnamon.
